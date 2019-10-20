@@ -1,0 +1,2 @@
+# Kral
+ne bakıyon lan ??
